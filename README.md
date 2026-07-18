@@ -2,7 +2,7 @@
 
 Email Me 👉 ✉️ **akashpaul.ap44@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🌱 **I’m currently learning:**Cloud Administrator
+- 🌱 **I’m currently learning:**Full Stack Web Development
 - 📫 **How to reach me:**akashpaul.ap44@gmail.com
 - 😄 **Pronouns:** Akash
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
